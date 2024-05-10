@@ -1,1 +1,1 @@
-👋 I'm Isaac Shalom AKA thesnowrose
+# 👋 I'm Isaac
